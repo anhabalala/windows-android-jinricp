@@ -1,4 +1,4 @@
-# jinricp韩国女团直播秀中文资源免费下载
+# jinricp韩国女团直播秀中文字幕资源免费下载
 
 韩国BJ | 韩国女主播 | pandatv | 진리컴퍼니 | jinricp  
 
@@ -14,8 +14,8 @@
 
 # jinricp韩国女团windows电脑和安卓手机下载：
 
-## 第一季：
 
+## 第一季(中文字幕)：
 
 【Jinricp】2024.02.19韩国美女天团首场炫丽开场（中韩双语字幕）
 https://webqwe.com/article/40573.html
@@ -64,3 +64,6 @@ https://webqwe.com/article/40674.html
 
 【Jinricp】2024.03.25韩国美女天团-大结局终局之战（中韩双语字幕）
 https://webqwe.com/article/40685.html
+
+## 第二季(中文字幕) ：
+持续更新......
