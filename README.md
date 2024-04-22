@@ -2,6 +2,8 @@
 
 韩国BJ | 韩国女主播 | pandatv | 진리컴퍼니 | jinricp  
 
+![图片](https://raw.githubusercontent.com/anhabalala/windows-android-jinricp/main/68747470733a2f2f777372762e6e6c2f3f75726c3d68747470733a2f2f696d672e6a6a6a2e6761792f66696c652f3063616161383963653232633865666430323837312e6a7067.jpg)
+
 简介：
 
 2月19日，应该算是韩国乃至世界直播圈的一个难忘的日子，Jinricp女团脱衣舞直播第一期正式开始！  
