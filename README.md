@@ -68,4 +68,8 @@ https://webqwe.com/article/40674.html
 https://webqwe.com/article/40685.html
 
 ## 第二季(中文字幕) ：
+【Jinricp】2024.04.29韩国女团直播秀，第二季（一）中韩双语字幕
+https://webqwe.com/article/41279.html
+
+
 持续更新......
