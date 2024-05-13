@@ -77,5 +77,11 @@ https://webqwe.com/article/41280.html
 【Jinricp】2024.05.03韩国女团直播秀，第二季（三）中韩双语字幕
 https://webqwe.com/article/41281.html
 
+【Jinricp】2024.05.08韩国女团直播秀，第二季（四）中韩双语字幕
+https://webqwe.com/article/41322.html
+
+【Jinricp】2024.05.10韩国女团直播秀，第二季（五）中韩双语字幕
+https://webqwe.com/article/41323.html
+
 
 持续更新......
