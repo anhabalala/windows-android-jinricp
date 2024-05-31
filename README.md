@@ -92,5 +92,22 @@ https://webqwe.com/article/41434.html
 【Jinricp】2024.05.17韩国女团直播秀，第二季（八）中韩双语字幕
 https://webqwe.com/article/41435.html
 
+【Jinricp】2024.05.20韩国女团直播秀，第二季（九）中韩双语字幕
+https://webqwe.com/article/41436.html
+
+【Jinricp】2024.05.22韩国女团直播秀，第二季（十）中韩双语字幕
+https://webqwe.com/article/41580.html
+
+【Jinricp】2024.05.24韩国女团直播秀，第二季（十一）中韩双语字幕
+https://webqwe.com/article/41581.html
+
+【Jinricp】2024.05.26韩国女团直播秀，第二季（十二）中韩双语字幕
+https://webqwe.com/article/41582.html
+
+【Jinricp】2024.05.27韩国女团直播秀，第二季（十三）大结局中韩双语字幕
+https://webqwe.com/article/41583.html
+
+
+## 第三季(中文字幕) ：
 
 持续更新......
